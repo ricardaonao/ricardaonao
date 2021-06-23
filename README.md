@@ -18,4 +18,4 @@ Feel free to download all the sample files you want.
 Visit my blog in Medium: https://seja-mug.medium.com/
 - Thanks for visiting my profile. 👋
  
-**And never forget**: Sharing is growing.
+**And never forget**: Share and grow!
